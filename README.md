@@ -4,3 +4,9 @@
 ### Thingworx Developer
 
 1. 
+
+
+## Accenture 
+### Designation: Analytics Analyst
+
+1.
